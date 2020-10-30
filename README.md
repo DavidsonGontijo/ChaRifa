@@ -203,4 +203,4 @@
 | 199    |
 | 200    |
 #### Contamos com a participação de todos
-<img src = "https://encrypted-tbn2.gstatic.com/images?q=tbn:ANd9GcT-pFE4YuTCDVTMWSsbQ-VQHBI4TGC9NgwK0GVKiJApe8vokALG">
+<img src = "Imagem.png">
