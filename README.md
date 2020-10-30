@@ -1,4 +1,3 @@
-![Alt ou título da imagem](Imagem.png)
 # Lista de números disponíveis para o Chá Rifa do Augusto
 ## Entrega até 10/12/2020 - Sorteio será realizado dia 15/12/2020  ----- Ao Vivo pelo Instagram ----- 
 |Números |
