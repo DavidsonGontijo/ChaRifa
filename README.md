@@ -2,5 +2,5 @@
 
 ## Entrega até 10/12 - Sorteio será realizado dia 15/12/2020 **** Ao Vivo pelo Instagram ****
 
-**1
-**2
+*1
+*2
